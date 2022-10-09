@@ -1,3 +1,4 @@
-## this is the git tutorials
+## this is the amazing git tutorials
 ## modofied
-## rjye9ugy
+## rjye9ugyjnjgihjojhuhptoh'
+## by developer domain team
